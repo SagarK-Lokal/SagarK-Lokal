@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sagar Kumar
-- 👀 I’m interested in Backend development
-- 🌱 I’m currently learning Django and kafka
+- 👀 I’m interested in 😊
+- 🌱 I’m currently learning Bahut kuchh 😎
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sagar.kumar@getlokalapp.com
 - 😄 Pronouns: He/Him
