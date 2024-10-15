@@ -2,7 +2,7 @@
 - 👀 I’m interested in 😊
 - 🌱 I’m currently learning Bahut kuchh 😎
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me sagar.kumar@getlokalapp.com
+- 📫 How to reach me by 🚕 🚎 🏎️ 🛵 🛺 🚄 🚝 🚅 🚂 ✈️ 🚉 🛩️ 🚀 🚁
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Nothing 
 
